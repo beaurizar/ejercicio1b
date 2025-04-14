@@ -1,0 +1,1 @@
+Estas son las instrucciones del ejercicio 1 de Bea.
